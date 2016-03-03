@@ -1,0 +1,1 @@
+# min240-Lab6-GoinesJaynee
